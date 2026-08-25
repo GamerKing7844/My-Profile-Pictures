@@ -10,6 +10,9 @@ Feel free to use these pictures if your name is Nathan, GamerKingXT or GamerKing
 -----
 
 Pictures 1 to 2 are **Gen 1**.
+
 Pictures 3 to 4 are **Gen 2**.
+
 Pictures 5 to 8 are **Gen 3**.
+
 Pictures 8 to 10 are **Gen 4**.
